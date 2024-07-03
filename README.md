@@ -1,6 +1,6 @@
 ## me chamo **lucas** e tenho 16 anos,sou estudante de tecnologia e robotica e atualmente estou aprendendo programaçãona linguagem javascript.
 
-**"nem rendo e nem disputo" ** ⭐👑
+**"nem rendo e nem disputo" ** ⭐👑🍀
 
 
 
